@@ -1,1 +1,0 @@
-# holicoastwellnessresort.github.io
